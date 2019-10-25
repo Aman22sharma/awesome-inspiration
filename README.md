@@ -40,7 +40,9 @@
   - Work like there is someone working 24 hours a day to take it all away from you! <br> ![](https://successlive.com/wp-content/uploads/mark-cuban-success-quotes131-758x426.png)
 - jack ma
   - " Your attitide is more important than your capabilities. Similarly your disicion is more important than your capabilities."<br> ![ptihj](https://user-images.githubusercontent.com/40789486/67595353-10bbd600-f784-11e9-8455-1b9602c62e04.jpg)
-
+-jack ma
+  - "On the path to success, you will notice that the successfull onece are not winner, or do they complain often."
+  
 ## Songs
 
 |  | YouTube | Wikipedia | Lyrics |
